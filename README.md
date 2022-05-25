@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **alroy17gama@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1K-HGwc7Xdu66Fk6-GevAIGpMb5Gfhglg/view?usp=sharing](https://drive.google.com/file/d/1K-HGwc7Xdu66Fk6-GevAIGpMb5Gfhglg/view?usp=sharing)
+- 📄 My resume [https://drive.google.com/file/d/1K-HGwc7Xdu66Fk6-GevAIGpMb5Gfhglg/view?usp=sharing](https://drive.google.com/file/d/1K-HGwc7Xdu66Fk6-GevAIGpMb5Gfhglg/view?usp=sharing)
 
 - ⚡ Fun fact **I can Train your canine for you**
 
